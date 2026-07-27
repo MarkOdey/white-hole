@@ -21,5 +21,9 @@ Anyways it's still Christmas all the family is downstairs I should go back but I
 I really love my gift. 
 
 
-
 Merry christmas.
+
+
+Sometimes fear drives humans in unsuspected ways. I am unsure if Eva ever realized it.
+
+
